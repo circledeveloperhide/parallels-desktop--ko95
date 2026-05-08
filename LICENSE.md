@@ -1,4 +1,4 @@
-
+Parallels Desktop for macOS ultimate Extension: search-enhancement & menu-bar-customization offers the most advanced Parallels Desktop for macOS extension, with search-enhancement
 
 
 
